@@ -1,0 +1,1 @@
+clip < "SHYT CHANNEL.txt"
